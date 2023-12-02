@@ -1,2 +1,0 @@
-# Jan.github.io
-Jan
